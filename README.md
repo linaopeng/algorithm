@@ -1,1 +1,1 @@
-# algorithm
+# Nothing is impossible
